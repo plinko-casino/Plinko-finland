@@ -1,4 +1,4 @@
-<img src="https://prnt.sc/KThb-X1TwfC2">
+<img src="https://github.com/plinko-casino/Plinko-finland/blob/main/Screenshot_10.png">
 <h1><a  rel="nofollow" href="https://ventut.com/tnByLtky">PLAY PLINKO FINLAND</a></h1>
 <h2> Löydä Parhaat Plinko-kasinot: </h2>
 
