@@ -9,6 +9,8 @@
 5) Frumzi - Bonus for new players:100% jopa 500€ + 200 FS + 1 Bonus Crab <a href="https://ventut.com/hvff4pLH" collor='red'> <span style="color:red"> Pelaa nyt </span></a>
 6) AmunRa - Bonus for new players:100% jopa 500€ + 200 FS + 1 Bonus Crab <a href="https://ventut.com/7xFGXY4r" collor='red'> <span style="color:red"> Pelaa nyt </span></a>
 
+<img src=:https://static.vecteezy.com/system/resources/thumbnails/035/753/221/small_2x/video-play-button-icon-for-graphic-design-logo-web-site-social-media-mobile-app-ui-illustration-png.png">
+
 
 
 
