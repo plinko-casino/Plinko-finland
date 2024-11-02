@@ -1,4 +1,7 @@
-<Title> Plinko finland </Title>
-<h1><a href="https://plinkocasino.fi/">Plinko finland</a></h1>
-Plinko finland
-<a href="https://plinkocasino.fi/"> Play plinko </a>
+
+<h1><a  rel="nofollow" href="https://ventut.com/tnByLtky">PLAY PLINKO FINLAND</a></h1>
+<h2> Löydä Parhaat Plinko-kasinot: </h2>
+
+1) KingMaker - 100% jopa 500€ - <a href="https://ventut.com/tnByLtky"> Pelaa nyt </a>
+
+
