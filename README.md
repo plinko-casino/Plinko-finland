@@ -1,4 +1,4 @@
-<a href="https://ventut.com/tnByLtky" ><img src="https://prnt.sc/KThb-X1TwfC2"></a>
+<img src="https://prnt.sc/KThb-X1TwfC2">
 <h1><a  rel="nofollow" href="https://ventut.com/tnByLtky">PLAY PLINKO FINLAND</a></h1>
 <h2> Löydä Parhaat Plinko-kasinot: </h2>
 
